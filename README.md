@@ -4,7 +4,7 @@ Sou Júlio César de Andrade Macedo, atualmente cursando análise e desenvolvime
 link para meu Linkedin: https://www.linkedin.com/in/julio-cesar-macedo-2a9341165/  
 
 
-link da minha coonta medium: https://medium.com/@juliomacedobsb
+link da minha conta medium: https://medium.com/@juliomacedobsb
 
 vamos nos conectar???
 
