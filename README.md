@@ -6,5 +6,5 @@ link para meu Linkedin: https://www.linkedin.com/in/julio-cesar-macedo-2a9341165
 
 link da minha coonta medium: https://medium.com/@juliomacedobsb
 
-vamos
+vamos nos conectar???
 
